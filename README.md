@@ -9,6 +9,7 @@ Ingredients:
 6. 1/4 teaspoon dried basil
 7. 1/8 to 1/4 teaspoon grated lemon zest
 8. 1/4 teaspoon lemon-pepper seasoning
+
 Instructions:
 1. In a medium saucepan, bring water, broth, lemon juice and butter to a boil.
 2. Stir in rice, basil and lemon zest. 
